@@ -20,6 +20,9 @@ Get live unblocked links, support, and hang out with the community!
 * [Unblockedgames66.school](https://unblockedgames66.school)
 * [Ubg911.net](https://ubg911.net)
 * [Catclass.net](https://catclass.net)
+* [PGIS](https://pgis.x10.mx/) - The main site for PGIS, an unblocked games site with over 100 games and more.
+* [zaka13](https://cdn.jsdelivr.net/gh/zaka13alt/history@latest/education2.0.svg)
+* [Bestspark](https://bestspark.org) - [discord](https://discord.gg/bestspark)
 
 ---
 
