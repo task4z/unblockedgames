@@ -8,6 +8,7 @@ Get live unblocked links, support, and hang out with the community!
 ---
 
 ## 🎮 Unblocked Game Or Proxy Hubs
+* [Blooket1](https://blooket1.com) ([Mirror](https://blooket1.pages.dev))
 * [Ezclasswork](https://ezclasswork.com)
 * [Classroom15x.net](https://classroom15x.net)
 * [Classroom20x.net](https://classroom20x.net)
