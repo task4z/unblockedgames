@@ -25,6 +25,7 @@ Get live unblocked links, support, and hang out with the community!
 * [Bestspark](https://bestspark.org) - [discord](https://discord.gg/bestspark)
 * [Nexus](https://nexus-unblocked.lol)
 * [Pastpapergenie](https://pastpapergenie.co.uk/)
+* [Dancing Bunny GN](https://cdn.jsdelivr.net/gh/ltorl/dancing-bunny/index.svg)
 
 ---
 
