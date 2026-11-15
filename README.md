@@ -16,6 +16,7 @@ Get live unblocked links, support, and hang out with the community!
 * [Pizzaeditiongames.io](https://pizzaeditiongames.io)
 * [Classroomunblockedgames.com](https://classroomunblockedgames.com)
 * [Ubg98.io](https://ubg98.io)
+* [Unblocked-games.vercel.app](https://unblocked-games.vercel.app)
 * [Unblocked-games.live](https://unblocked-games.live)
 * [Unblockedgames66.school](https://unblockedgames66.school)
 * [Ubg911.net](https://ubg911.net)
